@@ -17,7 +17,7 @@
 
 ## Transfers
 
-### NA Roubaix
+### Na Roubaix
 
 - Wiebes => Liana Lippert/Silvia Persico(9M)
 - Consonni => Gaia Realini (7)
